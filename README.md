@@ -1,4 +1,4 @@
-# Buy-me-a-coffee
+# Do you want to support my work?
 
 Hey there👋! If you like my work and want to support me, you can buy me a coffee!
 
